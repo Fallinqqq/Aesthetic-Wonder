@@ -1,2 +1,2 @@
-# zeldathewild.github.io
-Page for anything zelda.
+# Aesthetic.github.io
+A blogspot about my life and other shenanigans.
